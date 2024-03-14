@@ -1,4 +1,4 @@
-# [FREE] 💼 Job Applications [FiveM]
+# [QB/ESX] 💼 Job Applies [FiveM]
 
 <img src="https://i.imgur.com/2f58232.png">
 
